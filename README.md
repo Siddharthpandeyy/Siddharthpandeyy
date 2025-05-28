@@ -33,7 +33,7 @@ Welcome to my GitHub profile! I'm passionate about technology, finance, and buil
 ## 📫 How to reach me:
 - Email: siddharthpandeyy@gmail.com  
 - LinkedIn: [linkedin.com/in/siddharthpandeyy](https://linkedin.com/in/siddharthpandeyy)  
-- Instagram: [@siddharthpandeyy](https://instagram.com/siddharthpandeyy)
+- Instagram: [@siddharthpandeyy](https://instagram.com/pvtlifeofsid)
 
 ---
 
